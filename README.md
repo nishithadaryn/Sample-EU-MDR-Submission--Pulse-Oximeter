@@ -77,5 +77,3 @@ Interested in:
 **LinkedIn:**  
 https://www.linkedin.com/in/nishithadaryn/
 
----
-*Learning Regulatory Affairs by building regulatory documentation, not just reading about it.*
